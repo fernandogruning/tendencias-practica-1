@@ -1,3 +1,4 @@
+### Favorite artists
 - Kanye West
 - M83
 - Travis Scott
